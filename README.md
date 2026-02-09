@@ -1,0 +1,1 @@
+# borusan-premium-takip-kiralamaw
